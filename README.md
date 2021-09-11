@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SUCCpred
 - 👀 I’m interested in 3d 2d 1d
 - 🌱 I’m currently learning how to how
-- 💞️ I’m looking to collaborate on bongacams
+- 💞️ I AM ABOBA
 - 📫 How to reach me mind
 
 <!---
